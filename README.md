@@ -1,4 +1,4 @@
-# Welcome to the Ocean Monument
+# Welcome to the Kagerou Blog
 
 ## Latest Articles
 
